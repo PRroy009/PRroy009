@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=prroy009&label=Profile%20views&color=0e75b6&style=flat" alt="prroy009" /> </p>
 
-- ⚡ Fun fact **Mountain chicken is not a chicken.😜**
+- ⚡ Fun fact: **Mountain chicken is not a chicken.😜**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
