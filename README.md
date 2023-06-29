@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **contactpratik009@gmail.com**
 
-- ⚡ Fun fact **Mountain chicken is not a chicken.😜**
+- ⚡ Fun fact **Mountain chickens are not chicken.😜**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
